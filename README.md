@@ -1,0 +1,2 @@
+# NazomBatuNgompal
+Tugas_UAS
